@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @LadyYoungArt
 - 👀 I’m interested in creating a fun and exciting world of Carnival.
-- 💞️ I’m looking to collaborate on creating a decentralized island for my masqueraders.
+- 💞️ I’m looking to collaborate on creating a decentralized island for all masqueraders.
 - 📫 How to reach me ladyyoungart@gmail.com.
 
 <!---
